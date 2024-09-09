@@ -1,0 +1,1 @@
+c:\Users\shaij\OneDrive\Desktop\portfolio - Copy\richard resume.pdf
